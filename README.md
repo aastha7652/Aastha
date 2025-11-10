@@ -1,0 +1,1 @@
+crypto makert trend analysis
